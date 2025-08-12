@@ -1,5 +1,7 @@
 # 【﻿ＬＯＧ．１】![image](https://transbro.neocities.org/Graphics/Blinkies/Inthezone2.gif)
 
+( heyyy! welcome to my README.log ! )
+
  ![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b31ff556-b57a-4135-8798-efa11ce85221/d6satsb-2e589d3c-0834-44d5-8cbc-baaf50f31328.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2IzMWZmNTU2LWI1N2EtNDEzNS04Nzk4LWVmYTExY2U4NTIyMVwvZDZzYXRzYi0yZTU4OWQzYy0wODM0LTQ0ZDUtOGNiYy1iYWFmNTBmMzEzMjguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4EKu8oiBvSxI1QaZhOmDofc80bWPLWY-NOI5KOQyvPo) 
 
 ![image](https://github.com/GRIEFINGULOL/LOG.1/blob/43af253119141faaf750925c5d018d879bf46352/bpcb.jpg)
@@ -19,17 +21,17 @@
  
 𝓁𝓎𝓈𝓂 𝒾𝓃𝓈𝑒𝒸𝓉 , 𝓇𝑜𝓃𝒶𝓃 , 𝓃𝑜𝓈𝑜𝒾 + 𝒻𝓊𝓃𝓀𝓎 !! /𝓅
 
-. 
+.
 
 𝓈𝒽𝒶𝓇𝓀 𝒻𝓊𝓇𝓇𝓎, 𝓅𝑜𝓈𝓈𝒾𝒷𝓁𝑒 𝓈𝒽𝒶𝓇𝓀 𝓉𝒽𝑒𝓇𝒾𝒶𝓃 . ![image](https://blinkies.cafe/b/blinkiesCafe-sL.gif)
 
 
-🐚
+ ![image](https://gifcity.carrd.co/assets/images/gallery05/bc689005.gif?v=e3c0bc0f)
 
 
 𝓹𝓪𝓷𝓻𝓸𝓶𝓪𝓷𝓽𝓲𝓬 + 𝓯𝓪𝓮𝓼𝓪𝓻𝓲 , 𝓉𝒽𝑒𝓎/𝓉𝒽𝑒𝓂 .
 
-. ![image](https://transbro.neocities.org/Graphics/Blinkies/0074-pan.gif)
+ <3
 
 𝒹𝓃𝒾𝓈 : 𝑔𝑒𝓃𝑒𝓇𝒶𝓁 𝒸𝓇𝒾𝓉𝑒𝓇𝒾𝒶 , 𝒹𝒶𝓇𝓀𝓈𝒽𝒾𝓅𝓅𝑒𝓇𝓈 + 𝓅𝓇𝑜 . 𝓌𝑒𝒾𝓇𝒹𝑜𝓈 , 𝒽𝒽 + 𝒽𝒷 , 𝓉𝑒𝓇𝒻𝓈 .
 
@@ -44,7 +46,7 @@
 
 𝒸𝓊𝒹𝓈 + 𝒽𝓊𝑔𝓈 𝓇 𝒶𝓁𝓁𝑜𝓌𝑒𝒹! 𝓅𝓁𝑒𝒶𝓈𝑒 𝒹𝑜𝓃𝓉 𝒸𝑜𝓋𝑒𝓇 𝓂𝑒!! . 𝒾𝓃𝓉𝓇𝑜𝓋𝑒𝓇𝓉𝑒𝒹, 𝓈𝑜 𝓈𝓂𝒶𝓁𝓁 𝓉𝒶𝓁𝓀 𝒾𝓈 𝓊𝓈𝓊𝒶𝓁𝓁𝓎 𝓉𝒽𝑒 𝑔𝑜 .
 
-.
+🐚🐚
 
 𝒶𝓈𝓀 𝓂𝑒 𝒶𝒷𝑜𝓊𝓉 𝓈𝓉𝓊𝒻𝒻 ! 𝒾 𝒹𝑜𝓃𝓉 𝒷𝒾𝓉𝑒 :𝟥 .
 
@@ -54,6 +56,6 @@
 
 ~
 
-:【﻿ＥＮＤ－ＯＦ－ＬＯＧ．１】
+# :【﻿ＥＮＤ－ＯＦ－ＬＯＧ．１】
 
 ![image](https://dividers.crd.co/assets/images/gallery10/9cee9c9b.gif?v=05d33f91)
