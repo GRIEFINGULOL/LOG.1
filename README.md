@@ -1,3 +1,4 @@
+
 # 【﻿ＬＯＧ．１】![image](https://transbro.neocities.org/Graphics/Blinkies/Inthezone2.gif)
 
 ( heyyy! welcome to my README.log ! )
@@ -49,7 +50,6 @@
 🐚🐚
 
 𝒶𝓈𝓀 𝓂𝑒 𝒶𝒷𝑜𝓊𝓉 𝓈𝓉𝓊𝒻𝒻 ! 𝒾 𝒹𝑜𝓃𝓉 𝒷𝒾𝓉𝑒 :𝟥 .
-
 ![image](https://transbro.neocities.org/Graphics/Icons/Emo/094-beach.gif)
 
 𝒶𝒶𝓃𝒹𝒹.. 𝓉𝒽𝒶𝓉𝓈 𝒶𝒷𝑜𝓊𝓉 𝒾𝓉 . 
@@ -59,3 +59,13 @@
 # :【﻿ＥＮＤ－ＯＦ－ＬＯＧ．１】
 
 ![image](https://dividers.crd.co/assets/images/gallery10/9cee9c9b.gif?v=05d33f91)
+
+...
+
+...
+
+...
+
+thanks 4 reading :3 
+
+![image](https://i.pinimg.com/originals/8d/33/fe/8d33fe5c058ec46d4215331f28a248d9.gif)
