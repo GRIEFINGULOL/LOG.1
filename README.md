@@ -32,13 +32,12 @@
 
 𝓹𝓪𝓷𝓻𝓸𝓶𝓪𝓷𝓽𝓲𝓬 + 𝓯𝓪𝓮𝓼𝓪𝓻𝓲 , 𝓉𝒽𝑒𝓎/𝓉𝒽𝑒𝓂 .
 
- <3
+<3
 
 𝒹𝓃𝒾𝓈 : 𝑔𝑒𝓃𝑒𝓇𝒶𝓁 𝒸𝓇𝒾𝓉𝑒𝓇𝒾𝒶 , 𝒹𝒶𝓇𝓀𝓈𝒽𝒾𝓅𝓅𝑒𝓇𝓈 + 𝓅𝓇𝑜 . 𝓌𝑒𝒾𝓇𝒹𝑜𝓈 , 𝒽𝒽 + 𝒽𝒷 , 𝓉𝑒𝓇𝒻𝓈 .
 
 
-ᐧᐧᐧᐧᐧᐧᐧᐧᐧᐧᐧᐧ☾ ˖°˖☆ ˖°˖☽ᐧᐧᐧᐧᐧᐧᐧᐧᐧᐧᐧᐧ 
-
+![image](https://dividers.crd.co/assets/images/gallery04/e0dbbc7f.gif?v=05d33f91)
 
 𝒻𝒶𝓃𝒹𝑜𝓂𝓈 : 𝒷𝓉, 𝒹𝒾𝒶𝓁𝓉𝑜𝓌𝓃, 𝟦𝓈𝒶𝓀𝑒𝓃, 𝓉𝓇𝓊𝒹, 𝒸𝓇𝓀, 𝟥𝒻𝓈 + 𝒸𝓁𝑜𝒶𝓀𝓂𝑒𝓅𝓁𝓈 , 𝑒𝒸𝓉 .
 
@@ -69,3 +68,5 @@
 thanks 4 reading :3 
 
 ![image](https://i.pinimg.com/originals/8d/33/fe/8d33fe5c058ec46d4215331f28a248d9.gif)
+
+![image](https://dividers.crd.co/assets/images/gallery09/0768763f.gif?v=05d33f91)
